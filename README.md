@@ -1,1 +1,0 @@
-# home_comp_stu
